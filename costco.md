@@ -1,6 +1,9 @@
 Things I need to get at Costco
 ==============================
 
-1. Bananas 
-2. Gloves 
-3. Swiss cheese 
+- [ ] Frozen Digiorno Pizza (There is a three for ten dollar deal, I think)
+- [ ] Healthy Beginnings Sliced Bread 
+- [ ] Serviroli Cheese Ravioli
+- [ ] Bananas 
+- [ ] Tortilla chips 
+- [ ] Oranges 
