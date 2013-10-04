@@ -1,13 +1,9 @@
-*Parkview Smoked Sausage 
-	40 oz 
+*Mama Cozzi's Pizza Kitchen Thin Crust  Harvest Supreme
+	16.08 oz 
 	$3.89 
 	
-*Sunday Shoppe Icecream Sanswiches 
-	12 count, 42 oz 
-	$1.99 
-	
-*Green Grapes 
-	2 lbs 
-	$1.58 
+*Savoritz Saltine Crackers
+	16 oz 
+	$0.95 
 	
 	
