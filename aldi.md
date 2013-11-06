@@ -1,9 +1,11 @@
-*Mama Cozzi's Pizza Kitchen Thin Crust  Harvest Supreme
-	16.08 oz 
-	$3.89 
+*Happy Farms Sharp Cheddar Cheese 
+	8 oz
+	$1.79 
 	
-*Savoritz Saltine Crackers
-	16 oz 
-	$0.95 
+*Grapes 
+	2 lb
+	$1.78 
 	
-	
+*Lunch Mate Hard Salami
+	8 oz 
+	$2.79 
