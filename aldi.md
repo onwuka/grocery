@@ -1,11 +1,18 @@
-* Happy Farms Sharp Cheddar Cheese	8 oz	$1.79 
-	
-* Grapes	2 lb	$1.78 
-	
-* Lunch Mate Hard Salami	8 oz	$2.79 
+Things I need to got at Aldi
+==============================
 
-* Bananas 
-* Baby bela mushrooms 
-* Oranges 
-* Chicken bacon ranch pizza 
-* Onions
+* Sharp Cheddar 
+	$1.49
+* Hard/Genoa Salami 
+	$2.79
+* Rising Crust Pizza 
+	$3.89
+* Rising Crust Pizza 
+	$3.89
+
+Subtotal 
+	$12.06
+8.5% Tax 
+	$1.03
+Total 
+	$13.09
