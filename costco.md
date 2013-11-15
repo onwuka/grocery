@@ -1,14 +1,12 @@
-Things I need to got at Costco
+Things I need to get at Costco
 ==============================
 
-* Costco Rotisserie Chicken 
-	$4.99 
-* Healthy Beginning White Bread 
-	$4.25 
+* Item 
+	$0.00
 
 Subtotal 
-	$9.24
+	$0.00
 8.5% Tax 
-	$0.79
+	$0.00
 Total 
-	$10.03
+	$0.00

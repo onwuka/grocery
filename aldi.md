@@ -1,18 +1,12 @@
-Things I need to got at Aldi
+Things I need to get at Aldi
 ==============================
 
-* Sharp Cheddar 
-	$1.49
-* Hard/Genoa Salami 
-	$2.79
-* Rising Crust Pizza 
-	$3.89
-* Rising Crust Pizza 
-	$3.89
+* Item 
+	$0.00
 
 Subtotal 
-	$12.06
+	$0.00
 8.5% Tax 
-	$1.03
+	$0.00
 Total 
-	$13.09
+	$0.00
