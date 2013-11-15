@@ -1,4 +1,4 @@
-Things I need to got at Aldi
+Things I got at Aldi
 ==============================
 
 * Sharp Cheddar 
