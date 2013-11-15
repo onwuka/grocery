@@ -1,4 +1,4 @@
-Things I need to got at Costco
+Things I got at Costco
 ==============================
 
 * Costco Rotisserie Chicken 

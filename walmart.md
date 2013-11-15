@@ -1,4 +1,4 @@
-Things I need to got at Walmart
+Things I got at Walmart
 ==============================
 
 * Bananas 
