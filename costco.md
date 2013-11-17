@@ -2,7 +2,6 @@ Things I need to get at Costco
 ==============================
 
 * Healthy Beginning White Bread 
-	$4.25 
 
 Subtotal 
 	$0.00
