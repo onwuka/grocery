@@ -1,18 +1,30 @@
-Things I got at Aldi
+Things I need to get at Aldi
 ==============================
 
-* Sharp Cheddar 
-	$1.49
+* Yellow Onions 
+	$0.69
+
+* Celery 
+	$0.59 
+	
+* Bananas 
+	$?
+	
+* Navel Oranges	
+	$?
+	
 * Hard/Genoa Salami 
 	$2.79
+
 * Rising Crust Pizza 
-	$3.89
-* Rising Crust Pizza 
-	$3.89
+	$3.89	
+	
+* Mushrooms 
+	$?
 
 Subtotal 
-	$12.06
+	$0.00
 8.5% Tax 
-	$1.03
+	$0.00
 Total 
-	$13.09
+	$0.00

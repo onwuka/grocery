@@ -1,12 +1,12 @@
-Things I got at Walmart
-==============================
+Things I need to get at Walmart
+=======
 
-* Bananas 
-	$2.40 
+* Item 
+	$0.00
 
 Subtotal 
-	$2.40
+	$0.00
 8.5% Tax 
-	$0.20
+	$0.00
 Total 
-	$2.60
+	$0.00
