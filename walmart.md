@@ -1,4 +1,4 @@
-Things I need to get at Walmart
+Things I got at Walmart
 =======
 
 * Item 
